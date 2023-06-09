@@ -1,1 +1,1 @@
-# SmailPang.github.io
+# SmailPangCN.github.io
